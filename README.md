@@ -1,7 +1,7 @@
 ### Hi everybody 👋
 
 ⚡ Fun facts:
-- 🥋 3rd Dan Black Belt in Japanese Jiu-Jitsu
+- 🥋 4th Dan Black Belt in Japanese Jiu-Jitsu
 - 📸 Love going out taking photos 
 
 <!--📈 My GitHub Stats
